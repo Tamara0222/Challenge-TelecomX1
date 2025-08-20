@@ -31,6 +31,7 @@ Mejorar la experiencia en los primeros meses.
 Ofrecer soporte a adultos mayores y clientes digitales.
 
 Revisar estrategia de precios y percepción de valor.
+autor:Tamara Saavedra
 
 🔹 Herramientas
 
